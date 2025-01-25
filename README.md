@@ -1,5 +1,4 @@
-# BluebuERRY
-Wsg ☀️
+# WSG ☀️
 
 "Talk about low budget flights,no food or movies? I'm outta there..."
 "you're too slow!"
