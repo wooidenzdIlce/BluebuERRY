@@ -47,3 +47,5 @@
 
 
 >[If there is a line that I missed, let me know! It can be through Twitter or Pony Town if I'm online. You can help me, thanks!]
+
+`twttr/X:https://x.com/SpinNDasheyIS?t=3YbVUeEO7FXSsQXAyzHeSg&s=09!`
