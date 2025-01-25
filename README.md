@@ -38,6 +38,12 @@
 
 "the chili dog not the baby!"
 
+"that's no good."
+
+"bring it on!"
+
+"aw yeah!,this is happening."
+
 
 
 >[If there is a line that I missed, let me know! It can be through Twitter or Pony Town if I'm online. You can help me, thanks!]
