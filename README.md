@@ -42,6 +42,8 @@
 
 "bring it on!"
 
+"Hah,one!"
+
 "aw yeah!,this is happening."
 
 
