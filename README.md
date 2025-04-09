@@ -1,3 +1,9 @@
+https://rentry.co/stufftoreadhere JS READ THIS SHII. HELP!
+
+
+______
+
+
 # Sonic lines here ! 🫧
 
 "Talk about low budget flights,no food or movies? I'm outta there..."
